@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **schroeder.maxi@icloud.com**
 
-- ⚡ Fun fact **I got into coding when i was 11**
+- ⚡ Fun fact **I got into coding when i was 11 but i still am kinda meh**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
