@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **anything you'd like**
 
-- 📫 How to reach me **schroeder.maxi@icloud.com**
+- 📫 How to reach me **maxiwee@icloud.com**
 
 - ⚡ Fun fact **I got into coding when i was 11 but i still am kinda meh**
 
